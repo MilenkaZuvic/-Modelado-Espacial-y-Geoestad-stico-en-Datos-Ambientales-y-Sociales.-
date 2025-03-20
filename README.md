@@ -1,0 +1,1 @@
+# -Modelado-Espacial-y-Geoestad-stico-en-Datos-Ambientales-y-Sociales.-
